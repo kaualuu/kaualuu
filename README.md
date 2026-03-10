@@ -1,3 +1,3 @@
-### Oi, Sou Kauã (mais conhecido como Luuk), tenho 17 anos e sou estudante de Ciência da Computação da UFSJ (trancada) e faço Ads na Uninter.
+### Oi, Sou Kauã (mais conhecido como Luuk), tenho 19 anos e estudo um pouquinho de programação pela internet.
 
   
